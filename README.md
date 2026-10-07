@@ -8,6 +8,6 @@ The purpose of this repository is to preserve useful materials from the learning
 
 LINK: https://drive.google.com/drive/folders/1ZUuIvmz-SPlI24UiEnoTHGMKo5d8VLdi?usp=drive_link
 
-Zalo: 0356397229
+Zalo: 0589421129
 
 Mail: dinhliviet@gmail.com
